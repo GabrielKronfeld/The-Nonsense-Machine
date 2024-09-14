@@ -1,0 +1,10 @@
+$(cat /Users/gabrielkronfeld/programming/python/The Nonsense Machine/nonsense.py ) formicidmycomycetoushexahydroxypontilimpoisoneraccelerographphocodont
+coversidecyclocoelousswingabledyer
+saponifier
+womenfolkcontragredient
+wildsomesubaquatic
+bubblingcalumniatorythermotensileOlinia
+defamingly
+
+entrepreneurshipnymphlinfilmdomCycadaleschiliadicAnapheundisguisednessilloyaltyunderfarmer
+inbeaminggorce
